@@ -4,3 +4,4 @@
   
 - Рост 178см
 
+![картинка вместо фото](https://user-images.githubusercontent.com/113248592/190920075-21d4e92d-22a7-4e86-b6d7-5197fe823bbb.jpg)
