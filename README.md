@@ -4,4 +4,3 @@
   
 - Рост 178см
 
-![Картинка Вместо фото](1637646471_43-hdpic-club-p-obnovlennoi-toiota-kamri-58.jpg)
